@@ -9,4 +9,6 @@ And then have another guy doing it!!
 So much better than 3D printing...
 ![So much better than 3D printing](https://github.com/RandeLab/StarGazerBankli/raw/master/Hinti_closeup.jpg "So much better than 3D printing")
 
+Important to position it wisely!!
+![Bankli is positioned](https://github.com/RandeLab/StarGazerBankli/raw/master/RandeLab_ready.jpg "Naaiiice")
 
